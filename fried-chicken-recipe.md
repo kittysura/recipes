@@ -30,6 +30,7 @@ Prepare these ingredients for marination first:
 - **Red chilli powder** - 1 table spoon
 - **Black pepper** - half table spoon
 - **White pepper** - 1/4th table spoon
+- **Garam masala mix powder** - as required or you can skip it
 - **Chicken bullion powder** - 1/4th table spoon
 - **Paprika** - 1/4th table spoon
 - **Onion powder** - half table spoon

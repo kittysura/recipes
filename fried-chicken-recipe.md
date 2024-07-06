@@ -18,7 +18,7 @@ Prepare these ingredients first:
 - **Salt** - 1/4 table spoon per litre of water
 - **Water** - As required to submerge the drumsticks fully
 - **Sour curd** - 2 table spoon
-
+- **Lemon juice** - 1 table spoon
 Submarge the drumsticks with enough water, then add the ingredients. Give it a mix and keep it soaking for 2 hours. After soaking for two hours, gently dry the chicken by patting them
 with kitchen towel or napkins. Keep it aside for the next step.  
 
@@ -35,7 +35,8 @@ Prepare these ingredients for marination first:
 - **Paprika** - 1/4th table spoon
 - **Onion powder** - half table spoon
 - **Garlic powder** - half table spoon
-
+- **Ginger powder** - half table spoon
+ 
 Mix all the ingredient with the meat thoroughly and keep it in fridge for minimum of four hours. You can keep it for the whole night if you want. The more the merrier. After marinating,
 keep the marinated meat aside and prepare for the next step. Don't touch the meat before that.
 
